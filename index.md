@@ -1,1 +1,31 @@
-
+# 2022年11月13日主日信息
+# 主题：神的均平
+# 经文：哥林多后书8:1-24
+# 讲员：赵牧师
+<audio controls src="./神的均平.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/201506716-111545c8-4c23-41ae-b539-009bf26860ba.png)
+![image](https://user-images.githubusercontent.com/91267933/201506721-fac6325e-540a-4aa3-ae62-2e5e99a97c9b.png)
+![image](https://user-images.githubusercontent.com/91267933/201506724-41f80ad0-d157-444a-96b7-e9eb2deb2303.png)
+![image](https://user-images.githubusercontent.com/91267933/201506728-a7057e5a-a197-49ae-9d58-53ab2a59c250.png)
+![image](https://user-images.githubusercontent.com/91267933/201506730-7458b470-d2a2-4b85-aee6-ded44ee35e90.png)
+![image](https://user-images.githubusercontent.com/91267933/201506732-c1397676-43c6-4190-9369-806df0bbdd5e.png)
+![image](https://user-images.githubusercontent.com/91267933/201506734-cb846270-3a54-4ca4-ac98-a097ead4d9d1.png)
+![image](https://user-images.githubusercontent.com/91267933/201506736-1b07930c-2aca-4e02-b403-fdfb2059788c.png)
+![image](https://user-images.githubusercontent.com/91267933/201506740-14ec35bb-73cf-40cf-b4c6-e86499352648.png)
+![image](https://user-images.githubusercontent.com/91267933/201506741-8842ccb3-e623-49bb-a6d0-bc6ed7aafb70.png)
+![image](https://user-images.githubusercontent.com/91267933/201506745-b4badfad-e558-4b31-aad6-69c86c9844e3.png)
+![image](https://user-images.githubusercontent.com/91267933/201506746-5c056b6c-22fd-4af8-a779-3daa8c431c44.png)
+![image](https://user-images.githubusercontent.com/91267933/201506748-d7b2c530-aeb6-4135-9840-0d48326cfba3.png)
+![image](https://user-images.githubusercontent.com/91267933/201506750-3e3a6392-1f27-4e48-80fe-acc990f051c9.png)
+![image](https://user-images.githubusercontent.com/91267933/201506752-6c8b2dc2-0583-4426-9afd-41d3631aa062.png)
+![image](https://user-images.githubusercontent.com/91267933/201506760-50d3d86c-caa2-45d0-8b0f-3587883048e3.png)
+![image](https://user-images.githubusercontent.com/91267933/201506764-6d2259fb-0729-4997-bd38-3ec28fcd1229.png)
+![image](https://user-images.githubusercontent.com/91267933/201506767-b807338b-7c18-4326-8c06-17cea7fc8c61.png)
+![image](https://user-images.githubusercontent.com/91267933/201506770-ee27fec9-f9c4-4edd-a8a6-ff0939764aa2.png)
+![image](https://user-images.githubusercontent.com/91267933/201506773-cadaf4db-a636-450f-8555-44a294eeb920.png)
+![image](https://user-images.githubusercontent.com/91267933/201506779-7378db21-170d-4e27-b768-ea6553f4258e.png)
+![image](https://user-images.githubusercontent.com/91267933/201506784-be179edc-96db-4fad-9e11-6ae4a2a9312c.png)
+![image](https://user-images.githubusercontent.com/91267933/201506790-091e99c9-55e8-4cec-8ba3-ea847a700447.png)
+![image](https://user-images.githubusercontent.com/91267933/201506797-58031ceb-d427-4402-a48e-e443395be1c5.png)
+![image](https://user-images.githubusercontent.com/91267933/201506802-dff0a99c-30a5-4057-9269-04e74bd08cf7.png)
+![image](https://user-images.githubusercontent.com/91267933/201506808-698e1892-5600-47c9-aa8a-5e544af19ee0.png)
